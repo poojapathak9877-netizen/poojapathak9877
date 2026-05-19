@@ -1,4 +1,4 @@
-👋 Hi, I'm Pooja Paahak!
+👋 Hi, I'm Pooja!
 
 🎯 Aspiring Data Analyst & Business Analyst from Bhiwandi, India
 
